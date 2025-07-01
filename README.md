@@ -1,1 +1,1 @@
-# quantopia.github.io
+# quantopiamagazine.github.io
